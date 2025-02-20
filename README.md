@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @meerqamar
 - 👀 I’m interested in ...Tech, Code, AI/Ml, Data Science
 - 🌱 I’m currently learning ...Doing Computer Science 
-- 💞️ I’m looking to collaborate on ...With tech lovers and same mind people
+- 💞️ I’m looking to collaborate on ...With tech lovers and same mindset people
 - 📫 How to reach me ...I am already here
 - 😄 Pronouns: ... meerzada, malleable
 - ⚡ Fun fact: ... Kye batoan
